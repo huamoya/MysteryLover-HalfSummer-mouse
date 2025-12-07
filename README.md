@@ -1,4 +1,4 @@
-# MysteryLover-HelfSummer-mouse
+# MysteryLover-HalfSummer-mouse
 恋爱绮谭苏半夏鼠标皮肤静态-windows
 《恋爱绮谭 不存在的夏天》galgame游戏个人二创作品
 
